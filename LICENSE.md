@@ -1,4 +1,4 @@
-# 
+# Experience life together rp like never before with life together rp smart Scripts, the #1 Script. Includes teleport and undetectable for unbeatable
 
 
 
